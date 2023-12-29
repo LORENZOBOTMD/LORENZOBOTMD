@@ -18,7 +18,7 @@ Suka coding dan menciptakan hal-hal keren!
 - Email: contact@lorenzo.my.id
 
 ⚡ **Fakta seru:**
-Saya suka bereksperimen dengan teknologi baru dan bermain gitar!
+Saya suka bereksperimen dengan teknologi baru dan Nonton Bokep!
 
 ![Statistik GitHub LORENZOMD](https://github-readme-stats.vercel.app/api?username=LORENZOMD&show_icons=true&count_private=true)
 
